@@ -1,0 +1,1 @@
+# politikal-juggernanuts-a-quantitative-of-candidates-in-the-2019-lok-sabha-election.
